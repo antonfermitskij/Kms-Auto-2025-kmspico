@@ -29,6 +29,8 @@ If you are a fan of open-source projects, you can find Win activator GitHub repo
 
 In conclusion, whether you need a Windows-10 loader, a Win-7 activator loader, or an Office activator cmd, KMS Pico and KMS offer multiple reliable methods to ensure your Win and are properly activated.
 
+![Download KMSPico](https://ts2.mm.bing.net/th?q=Download%20activator%20KMSPico)
+
 
 ## Who is this program suitable for
 
