@@ -5,7 +5,7 @@ Kmspico is the optimal app for those who want to activate the OS Win or MS Offic
 
 If you are looking for the most reliable way to activate your Windows OS or Microsoft Office, KMS-pico is a great solution. With KMSpico download, you can easily get a KMS activator that works for Windows 10, Windows 11, Windows 7, and even older versions. Whether you need a Win activator, a Windows 10 activator, or a Windows 11 activator, KMSpico offers a simple way to ensure your system is activated properly.
 
-![KMSPico for Windows and Office](https://ts2.mm.bing.net/th?q=KMSPico for Windows and Office)
+![KMSPico for Windows and Office](https://ts2.mm.bing.net/th?q=KMSPico%20for%20Windows%20and%20Office)
 
 ### KMSpico is the perfect solution for activating Win and Microsoft Office
 
